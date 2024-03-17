@@ -1,1 +1,1 @@
-3D Portfolio: https://binkswang.github.io/PortfolioYubin.github.io/
+3D Portfolio: https://binkswang.github.io/
